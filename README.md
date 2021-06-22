@@ -1,4 +1,4 @@
-![img](https://finrodchen.net/wp-content/uploads/2020/05/97333015_114289243613605_8241814401598881792_n.png)
+![img](https://i.imgur.com/xAn6IcN.png)
 
 ### Hi there 👋
 
